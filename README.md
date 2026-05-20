@@ -1,1 +1,1 @@
-# SM-Brand-Assets
+# Brand-Assets
